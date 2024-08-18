@@ -1,5 +1,5 @@
 # 🔭 》About Me :
-🎉 》Age : 18 </br>
+🎉 》Age : 19 </br>
 📚 》Studies : Electrical engineering 2022 - 2024</br>
 
 🚀 》Hobby :
