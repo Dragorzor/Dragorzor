@@ -1,8 +1,8 @@
 # 🔭 》About Me :
-🎉 》Age : 19 </br>
+🎉 》Age : 20 </br>
 📚 》Studies : 
 - Electrical engineering 2022 - 2024
-- C.S. licence 2024 - 2027
+- Computer Science licence 2024 - 2027
 </br>
 
 🚀 》Hobby :
